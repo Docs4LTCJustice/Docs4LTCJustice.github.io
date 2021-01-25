@@ -354,7 +354,7 @@ Urgent action is needed now.  This is a matter of life and death.
 
 142. Suzanne Sicchia, MHSc, MSc, PhD
 
-143.Allan Kellehear, PhD, FAcSS Honorary Professor, Division of Palliative Care, McMaster University
+143. Allan Kellehear, PhD, FAcSS Honorary Professor, Division of Palliative Care, McMaster University
 
 144. Leigh Minuk, MD, Respirology Fellow, University of Toronto
 
