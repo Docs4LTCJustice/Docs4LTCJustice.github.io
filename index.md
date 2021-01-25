@@ -500,5 +500,70 @@ Urgent action is needed now.  This is a matter of life and death.
 
 215. Paz Gajardo, MD, CCFP, Family Physician
 
+216. Sara Alavian, MD, Resident Physician
+
+217. Puninda - Global Shapers Toronto Hub
+
+218. Caitlin Fitzpatrick MD CCFP
+
+219. Heather McLeod, MD, FRCPC, Geriatrician (McMaster University)
+
+220. Bushra Khan, MD, Resident Physician in Psychiatry at the University of Toronto
+
+221. Vanessa Wright, NP-PHC, MScN, Women's College Hospital, Adjunct Lecturer U of T, School of Nursing
+
+222. Nicole Buchanan, MD, Resident Doctor
+
+223. Ruth Hussman MD CCFP FCFP
+
+224. John Ihnat, Lecturer, Department of Family and Community Medicine, University of Toronto
+
+225. A Anand MD FRCPC
+
+226. Dr Betty Hum SETFHT
+
+227. Rob Ciccarelli, MD CCFP(PC), Michael Garron Hospital / Southeast Toronto FHT
+
+228. Suzanne Sicchia, MHSc, MSc, PhD
+
+229. Dr. Joanna Humphreys, MD, FRCPC, McMaster Univeristy
+
+230. Allan Kellehear, PhD, FAcSS Honorary Professor, Division of Palliative Care, McMaster University
+
+231. Jackie Bellaire MD, CCFP
+
+232. Staci Miao, MD, CCFP, Family Physician
+
+233. Denise Marshall, MD, CCFP (PC) Professor, Division of Palliative Care, McMaster University
+
+234. Michelle Howard, MSc, PhD, Associate Professor, McMaster University
+
+235. Dawn Elston, Evaluation Coordinator, Prevention of Error Based Transfers (PoET)
+
+236. Dr. Ato Sekyi-Otu, MD, Orthopaedic Surgeon at William Osler Health System
+
+237. Katherine Ker, MD, CCFP, Lecturer, Department of Family & Community Medicine, University of Toronto
+
+238. Abby Maybee, MD CCFP(PC)
+
+239. Gregorio Zúñiga - McMaster University
+
+240. Jeffrey McCarthy MD CCFP(PC), Assistant Clinical Professor (adjunct), McMaster University
+
+241. Sophia Teng, MD, CCFP, Family Physician 
+
+242. Leslie Shanks, MD, CCFP, MPH
+
+243. Dave Lysecki, MD, FRCPC, McMaster University
+
+244. Katrin Conen, MD, FRCPC, McMaster University
+
+245. Henry Siu, MSc MD CCFP (COE), Associate Professor, McMaster University
+
+246. Kevin Workentin, MD, CCFP(PC) Chief, Department of Family Medicine; Program Medical Director, Complex Continuing Care - Toronto East Health Network; Asst Professor, Department of Family and Community Medicine, U of T
+
+247. Miriam Maarse, MB, BCh, BAO, FRCPC, Pediatrics 
+
+248. Katie Arnup, Executive Director - Canadian Doctors for Medicare
 
 *For access to the official document and references, [click here:](https://docs.google.com/document/d/1IO8NP3Jj7dcWjqOikBbujY2Y2YYCVGr5CQDKntTMobc/edit?usp=sharing)
