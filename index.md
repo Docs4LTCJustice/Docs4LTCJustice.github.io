@@ -524,9 +524,9 @@ Urgent action is needed now.  This is a matter of life and death.
 
 227. Rob Ciccarelli, MD CCFP(PC), Michael Garron Hospital / Southeast Toronto FHT
 
-228. Suzanne Sicchia, MHSc, MSc, PhD
+228. Charlene Chu, RN, PhD, Lawrence S. Bloomberg Faculty of Nursing, University of Toronto
 
-229. Dr. Joanna Humphreys, MD, FRCPC, McMaster Univeristy
+229. Joanna Humphreys, MD, FRCPC, McMaster Univeristy
 
 230. Allan Kellehear, PhD, FAcSS Honorary Professor, Division of Palliative Care, McMaster University
 
@@ -540,7 +540,7 @@ Urgent action is needed now.  This is a matter of life and death.
 
 235. Dawn Elston, Evaluation Coordinator, Prevention of Error Based Transfers (PoET)
 
-236. Dr. Ato Sekyi-Otu, MD, Orthopaedic Surgeon at William Osler Health System
+236. Ato Sekyi-Otu, MD, Orthopaedic Surgeon at William Osler Health System
 
 237. Katherine Ker, MD, CCFP, Lecturer, Department of Family & Community Medicine, University of Toronto
 
@@ -565,5 +565,44 @@ Urgent action is needed now.  This is a matter of life and death.
 247. Miriam Maarse, MB, BCh, BAO, FRCPC, Pediatrics 
 
 248. Katie Arnup, Executive Director - Canadian Doctors for Medicare
+
+249. S. Kathleen Hughes, MD, Family Medicine Resident, McMaster University
+
+250. Sonja Babovic, MD, CCFP, rural family medicine
+
+251. Jennifer Baumbusch, RN, PhD, Associate Professor, University of British Columbia
+
+252. David Fisman, MD MPH FRCP(C), Professor, Dalla Lana School of Public Health, University of Toronto 
+
+253. Amy Greer, MSc, PhD, Canada Research Chair in Population Disease Modeling and Associate Professor, University of Guelph
+
+254. Andre Maddison MD MSc FRCPC General Internal Medicine, Niagara Health System
+
+255. Emily Wilson, MD, CCFP, Family Physician
+
+256. Glen Maddison M.D. FRCPC Medical Director St. Joseph's Hospice Sarnia
+
+257. Alyson E. King, M.A., Ph.D., Associate Professor, Faculty of Social Science & Humanities, Ontario Tech University
+
+258. Monika Dutt, MD, Canadian Doctors for Medicare Board member
+
+259. Allison Crombeen, MD, CCFP(PC), FRCP, Bluewater Health Sarnia
+
+260. Hun-Je Park, MD, CCFP (PC) Division of Palliative Care, McMaster University
+
+261. Pamela Thompson MD CCFP FCFP. Family Physician 
+
+262. Erin Gallagher MD, CCFP (PC), MPH. Assistant Professor McMaster University
+
+263. Ann Li, MD, CCFP, Family Physician
+
+264. Evan Lilly, MD CCFP, Western University
+
+265. Susan Woolhouse, MD, MClSc, CCFP
+
+266. Julia Wilhelm, MD FCFP, family physician Waterloo
+
+267. Thomas O'Brien, MD, CCFP
+
 
 *For access to the official document and references, [click here:](https://docs.google.com/document/d/1IO8NP3Jj7dcWjqOikBbujY2Y2YYCVGr5CQDKntTMobc/edit?usp=sharing)
