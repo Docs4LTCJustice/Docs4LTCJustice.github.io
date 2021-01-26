@@ -26,3 +26,12 @@ You can follow our work on Twitter at [@Docs4LTCJustice](https://twitter.com/Doc
 
 [CBC Morning Live](https://twitter.com/CBCMorningLive/status/1354085067207933953?s=20)
 
+[CityNews- Toronto](https://toronto.citynews.ca/2021/01/26/doctors-researchers-call-for-long-term-care-changes-from-ontario-government/)
+
+[CBC Article](https://www.cbc.ca/news/canada/toronto/ontario-long-term-care-1.5888226)
+
+[Huffington Post](https://www.huffingtonpost.ca/entry/long-term-care-humanitarian-crisis_ca_601070d7c5b6a08142724e1f?ncid=tweetlnkcahpmg00000002)
+
+[CP24](https://www.cp24.com/video?clipId=2126532&binId=1.1127680&playlistPageNum=1)
+
+[CTV News](https://www.ctvnews.ca/video?clipId=2126568)
