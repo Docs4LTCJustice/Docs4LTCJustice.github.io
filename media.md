@@ -20,3 +20,9 @@ You can follow our work on Twitter at [@Docs4LTCJustice](https://twitter.com/Doc
 
 [AM640 The Morning Show](https://omny.fm/shows/am640-the-morning-show/todays-show-few-long-term-care-homes-receive-publi)
 
+[CBC Radio](https://www.cbc.ca/player/play/1848545347879)
+
+[Global News Radio- Bill Kelly Show](https://omny.fm/shows/bill-kelly-show/doctors-for-justice-in-long-term-care-the-scienceu)
+
+[CBC Morning Live](https://twitter.com/CBCMorningLive/status/1354085067207933953?s=20)
+
