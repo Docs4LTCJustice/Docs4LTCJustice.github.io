@@ -604,5 +604,254 @@ Urgent action is needed now.  This is a matter of life and death.
 
 267. Thomas O'Brien, MD, CCFP
 
+268. Deborah Pink, MD, FRCPC. Lecturer, University of Toronto
+
+269. Neil Naik, MD, CCFP, Chair of the KW4 Primary Care Council, Interim Regional Primary Care Lead for Cancer Prevention and Treatment Waterloo Wellington, Vice President of the Kitchener-Waterloo Academy of Medicine, Physician Advisor for the eHealth Centre for Excellence, Assistant Clinical Professor, McMaster University-Waterloo Regional Campus
+
+270. Iram Abbasi CCFP
+
+271. Janet Zettel MD MCFP Community Family Physician 
+
+272. Sophie Wilson, MD FCFP, family physician
+
+273. Martha Riesberry, MD, CCFP, assistant clinical professor, (adjunct), McMaster University
+
+274. Erinn Owens MD CCFP (PC) FCFP
+
+275. Polly Ford-Jones PhD, AEMCA
+
+276. Christine Herrera, MD, MPH, CCFP
+
+277. Gordon Schacter, Adjunct Professor Family Medicine, Western University
+
+278. Nancy Olivieri, MD, FRCPC Professor, Pediatrics, Medicine and Public Health Sciences, University of Toronto
+
+279. Debbie Hommersen
+
+280. Christopher Leighton MD, FRCPC, Adjunct Professor of Oncology, Western University
+
+281. Kailey Minnings, MD, MPH, PGY2 Family Medicine University of Toronto
+
+282. Sarah Neil-Sztramko, PhD, Assistant Professor, McMaster University 
+
+283. Alison Mckeown RN, BScN, PHN
+
+284. Mathieu JP Poirier, PhD, MPH, CPH, Assistant Professor of Social Epidemiology, York University
+
+285. Lori Regenstreif MD Shelter Health Network Hamilton and McMaster Dept.of Family Medicine 
+
+286. Marina Wasilewski, PhD, Scientist, St. John's Rehab, Sunnybrook Research Institute
+
+287. Katalin Ivanyi MD CCFP FCFP
+
+288. Kimberley Gauthier, Ph.D., Research Fellow, The Hospital for Sick Children, Toronto
+
+289. Dr Mark Coates, C.Psych., Neuropsychologist in private practice, Ottawa
+
+290. Kristina Bendikas, Ontario resident
+
+291. Katherine Baldwin MD FRCPC
+
+292. Magdie Kohn, MD FRCPC, Respirology and Sleep Medicine
+
+293. Jason Kindrachuk, PhD, University of Manitoba 
+
+294. Emily Leaman, MD, PGY1 Family Medicine, Queen's University
+
+295. Frances Wright surgical oncologist Sunnybrook health sciences centre
+Daphne Voineskos MD, PhD, FRCPC, Assistant Professor, Department of Psychiatry, University of Toronto
+
+296. Sadaf Gardizi, MD, Family Physician
+
+297. Dr Louise Linney MD, CCFP, Ottawa
+
+298. Dr. Jessica Leah, MD,CCFP, Family Physician
+
+299. Alison Mikelsons, MD CCFP
+
+300. Annamari Pouti-Fletcher, Ontario citizen
+
+301. Mary Orpen citizen of Ontario
+
+302. Dr Bill Mccready Northern. Ontario School of Medicine
+
+303. Alexandra Bite, MD, Resident Physician U of T
+
+304. Samantha Marriage, MBBS CFPC(EM) Toronto
+
+305. Deepa Soni CCFP(EM), assistant professor, University of Toronto
+
+306. Heather Y. Shpuniarsky PhD, Trent University
+
+307. Krista Margeson, MD, CCFP
+
+308. Harry Wang, Medical Student (2024), University of Ottawa
+
+309. Elaine Peltier
+
+310. Laura Zuccaro, MD, MSc, CCFP, Emergency Medicine Fellow
+
+311. Sherry Avison
+
+312. James Rassos, MD, FRCPC, General Internal Medicine St. Michael's Hospital, Assistant Professor University of Toronto 
+
+313. Aarlenne Khan, PhD, Associate Professor, School of Optometry, University of Montreal
+
+314. Anika Spasov, uOttawa MD2024 Candidate, McMaster BHSc 2020
+
+315. Marc Gabel M.D., M.P.H.
+
+316. Jason Moores, NP, Primary Health Care
+
+317. Brent Archer. Essential Caregiver 
+
+318. Leanne Kim, MD Candidate, McMaster University 
+
+319. Michelle Morais, MD, FRCSC, DRCPC, Associate Professor Department of Obstetrics and Gynecology, Division of Maternal Fetal Medicine, McMaster University 
+
+320. Jolie Wang
+
+321. Shayna Bejaimal MD, FRCPC Internal Medicine 
+
+322. Kimberly Gartner ON resident
+
+323. Anne MacDonald retired RN, Lawyer
+
+324. Susan Gordon, Resident Milton, Ontario 
+
+325. Julie Steel, RPN, North York General Hospital
+
+326. Bernard Ho, MD, CCFP
+
+327. Thom Ringer MD CCFP(EM)
+
+328. Tracy Sorrill daughter and caregiver
+
+329. Alessandro Francella, MD, CCFP (SEM), Dip. Sport Med. Lecturer, University of Toronto, Emergency Medicine Physician Lakeridge Health
+
+330. Ivy Lynn Bourgeault, PhD., Professor and University Research Chair, University of Ottawa 
+
+331. Gabrielle Ledger, MD FRCPC, Psychiatry 
+
+332. Rupinder S. Sahsi, MD CCFP(EM) Emergency Physician (Kitchener) and Assistant Professor, McMaster University
+
+333. Steve Jackson, Managing Director, S. J. Jackson Consulting Inc. Governance Board Member, CHATS. 
+
+334. Rob Smith, DPhil, Postdoctoral Fellow, University of Toronto
+
+335. Dr Kristin Chow, MD CCFP Niagara North Family Health Team
+
+336. Janet Snetsinger RN BA Psychology
+
+337. Colin Whaley, MSc, MD Student, McMaster University
+
+338. Dr Kate Miller, MD, CCFP, Family Physician, Guelph and Listowel, ON
+
+339. Timothy Mackay; Heathcare IT Professional
+
+340. Christina Smith, M.Cl.Sc.(OT), Occupational Therapist
+
+341. Joshua Wales, MD CCFP(PC), Palliative Care Physician, Sinai Health System
+
+342. Lisa Maldonado, Ontario resident who decries the focus on profit and political complicity therewith that is killing healthcare workers and seniors
+
+343. Mary Grace Lao, PhD Candidate York University and Instructor of Sociology at Humber College
+
+344. Seann Seto, PharmD, ACPR, BCMAS
+
+345. Jennifer D Irwin, PhD, Health Behaviourist,  Researcher
+
+346. Charles wr beach
+
+347. David B W Lam, MD, FRCPC Geriatric Psychiatry, McMaster University 
+
+348. Michelle Scott Mascioli, M.Sc. 
+
+349. Jacky Lai, MD, CCFP, DFCM University of Toronto
+
+350. Deborah M Sloboda, Professor, Department of Biochem & Biomed Sci McMaster University
+
+351. Anna C. Reed, MSW, PhD Student, University of Toronto
+
+352. Don Matheson
+
+353. Sally Horak, daughter of LTC resident 
+
+354. Gail Bellissimo
+
+355. Rita Da Silva
+
+356. Sandra Hoy, MSW, PhD, Assistant Professor, Laurentian University
+
+357. Yotakahron Jonathan, MA, Medical Student  
+
+358. Donald J. Matheson 
+
+359. Patricia Doyle, MD, FRCSC
+
+360. Manjot Samagh MD, CCFP(EM)
+
+361. Jaya Gupta, M. A., C. Psych. Assoc., Private Practice & Family Council Chair
+
+362. Andrew Hauser MSW, RSW
+
+363. Dr. Pamela Anand, MDCM, CCFP, Family Physician
+
+364. Morag Paton, MEd, PhD(c), University of Toronto
+
+365. Danielle Bischof MD MHS FRCSC, Sinai Health
+
+366. Amanda Abate MD, FRCPC, University of Toronto
+
+367. Fatimah Roble, Medical Student at University of Toronto
+
+368. Jennifer Cada, BCBA, OCT (concerned citizen)
+
+369. Heather McLeod, MD FRCPC, Geriatrician 
+
+370. Sylvain Roy, Ph.D., C.Psych. Neuropsychologist 
+
+371. Natalie Cotton
+
+372. Carolina Barnett-Tapia, MD, PhD. Assistant Professor. Division of Neurology. University of Toronto 
+
+373. Ken Smith, PCP AIV CP,  County of Simcoe Paramedic Services
+
+374. Lindsay Melvin MD MHPE FRCPC 
+
+375. Donald J Francis, PhD. Scientist & Senior
+
+376. Anne Opavsky MD PhD FRCPC 
+
+377. Tim Oliveira, MSc MD FRCPC, Anesthesiology
+
+378. S Segeren, BSc (Hons) PT- Physiotherapist, inactive, retired.
+
+379. Michael Taglione, MD, Family Medicine Resident
+
+380. Suffia Malik, Medical Student, Queen's University
+
+381. Kevin Rodrigues, MTS, Bioethicist, Adjunct Lecturer, University of Toronto
+
+382. Lesley A. Tarasoff, PhD, Postdoctoral Research Fellow, UTSC and CAMH
+
+383. Ifrah Shah, MD, Family Medicine Resident, University of Toronto
+
+384. Catherine Oliver MD, Retired family physician 
+
+385. Miriam Mottiar, MD, MHSc, FRCPC, Assistant Professor, Division of Palliative Care, University of Ottawa
+
+386. Ciara Quigley MD, CCFP, FCFP
+
+387. Yousuf Ahmed, MD Candidate, University of Toronto
+
+388. Kay Dingwell MD Resident Physician McMaster Department of Family Medicine
+
+389. Johanna Sanchez, MIPH, PhD, Postdoctoral Fellow, Epidemiology, Ryerson University
+
+390. Anjali Bhayana MD CCFP, DFCM u of t
+
+391. Poonam Sehgal PHC-NP, NPSTAT 
+
 
 *For access to the official document and references, [click here:](https://docs.google.com/document/d/1IO8NP3Jj7dcWjqOikBbujY2Y2YYCVGr5CQDKntTMobc/edit?usp=sharing)
