@@ -35,3 +35,5 @@ You can follow our work on Twitter at [@Docs4LTCJustice](https://twitter.com/Doc
 [CP24](https://www.cp24.com/video?clipId=2126532&binId=1.1127680&playlistPageNum=1)
 
 [CTV News](https://www.ctvnews.ca/video?clipId=2126568)
+
+[Healthy Debate](https://healthydebate.ca/opinions/ontarios-long-term-care-sector-is-in-a-grave-humanitarian-crisis)
