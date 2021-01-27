@@ -43,3 +43,11 @@ You can follow our work on Twitter at [@Docs4LTCJustice](https://twitter.com/Doc
 [Healthy Debate](https://healthydebate.ca/opinions/ontarios-long-term-care-sector-is-in-a-grave-humanitarian-crisis)
 
 [The National](https://www.youtube.com/watch?v=MZTYWJtEAKs&feature=youtu.be&ab_channel=CBCNews%3ATheNational)
+
+[Hamilton Spectator](https://www.thespec.com/news/hamilton-region/2021/01/27/grace-villa-operator-saddened-workers-felt-they-lacked-resources.html)
+
+[CBC Radio- with Julianne Hazlewood](https://www.cbc.ca/listen/live-radio/1-112-ontario-morning-from-cbc-radio)
+
+[CTV News- Article](https://toronto.ctvnews.ca/hundreds-of-doctors-advocates-ask-ontario-government-to-better-support-long-term-care-homes-battling-covid-19-1.5283093)
+
+[Global News](https://globalnews.ca/video/7601420/coronavirus-doctors-call-ford-governments-long-term-care-home-approach-reactionary-at-best)
