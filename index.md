@@ -1659,4 +1659,66 @@ York University & Assistant Professor Status-Only, Faculty of Social Work, Unive
 
 789. Anika Andal, RN, MScN (S), University of Toronto
 
+790. Marisa Cicero, MSW RSW 
+
+791. Chandi Chandrasena MD CCFP FCFP
+
+792. Larissa Neumann, concerned citizen from Oakville, ON
+
+793. Courtney Coschi, MD PhD, Medical Oncology Resident, McMaster University
+
+794. Alana Miller, MD, FRCPC, Geriatric fellow University of Toronto
+
+795. Elizabeth Stevens, PhD, C.Psych., Clinical Psychologist
+
+796. Debbie Elman MD CCFP FCFP Associate Professor, Department of Family and Community Medicine, University of Toronto
+
+797. Patricia Cavanagh, MD, FRCPC
+
+798. Dr. Aajab Abdulhussein, CCFP (EM)
+
+799. Tamar Packer, MD, FCFP. McMaster University 
+
+800. Amanda Bullock-Layfield
+
+801. L. Gossage - family member of LTC residents
+
+802. Justin Lam, MD, Paediatrics Resident, PGY4, University of Toronto
+
+803. Janice Kwan, MD MPH FRCPC, Assistant Professor, University of Toronto
+
+804. Karen Saperson MBChB FRCPC Professor of Psychiatry McMaster University 
+
+805. Greg Stansfield
+
+806. Neha Malhotra, BHSc (Global Health), MPhil, MD candidate University of Toronto and Part-Time Instructor BHSc (Honours) Program 
+
+807. Raghu Venugopal MD
+
+808. Adelaide Burrows, Medical Student (2023), Queen’s University
+
+809. Diane Pappas concerned citizen, B.A., caregiver
+
+810. Dr. Owen Kavanagh, MD, CCFP
+
+811. Amrisha Sharma 
+
+812. Paula Crawford-Dickinson, RN BA BHA MN-ACNP EdD CNE. Professor, Nursing, George Brown College
+
+813. Andrea Hunter, MD, FRCPC, McMaster University
+
+814. Dr. Constance Nasello, President, Ontario Society of OB-GYNs
+
+815. Virginia Brown MD CCFP-EM, University of Toronto
+
+816. Alice Holub, Ph.D., R.Psych.
+
+817. James Owen, MD CCFP, Family Physician and Assistant Professor, Unity Health Toronto, University of Toronto
+
+818. Susan Bondy, University of Toronto Dalla Lana School of Public Health
+
+819. James Deutsch MD PhD FRCPC University of Toronto
+
+
+
 *For access to the official document and references, [click here:](https://docs.google.com/document/d/1IO8NP3Jj7dcWjqOikBbujY2Y2YYCVGr5CQDKntTMobc/edit?usp=sharing)
