@@ -32,7 +32,9 @@ You can follow our work on Twitter at [@Docs4LTCJustice](https://twitter.com/Doc
 
 [Huffington Post](https://www.huffingtonpost.ca/entry/long-term-care-humanitarian-crisis_ca_601070d7c5b6a08142724e1f?ncid=tweetlnkcahpmg00000002)
 
-[CP24](https://www.cp24.com/video?clipId=2126532&binId=1.1127680&playlistPageNum=1)
+[CP24- Dr. Amit Arya](https://www.cp24.com/video?clipId=2126532&binId=1.1127680&playlistPageNum=1)
+
+[CP24- Dr. Vivian Stamatopoulos](https://www.cp24.com/we-re-losing-seniors-in-ltc-by-the-hour-doctor-1.5283065/dr-vivian-stamatopoulos-1.5283072)
 
 [CTV News](https://www.ctvnews.ca/video?clipId=2126568)
 
