@@ -1178,7 +1178,485 @@ Monica Jex
 
 553. Sapna Makhija, MD, FRCPC
 
+554. Judith Manson RN BScN Faculty Advisor Community Health Practice 
 
+555. Susan Glover Takahashi, PhD Associate Professor, Department of Family and Community Medicine Associate Professor, Dalla Lana School of Public Health  Temerty Faculty of Medicine, University of Toronto
 
+556. Morgan Lincoln, RN, MA
+
+557. Chanel Kwok, MD FRCPC
+
+558. Sara Shanahan, MD, MSW
+
+559. Felix Li, M.B.,B.S., FRCPC. Public Health Physician
+
+560. Bina Homemaker
+
+561. Diana Hamer MD
+
+562. Daniel Rosenbaum, MD, FRCPC, Psychiatrist, University of Toronto
+
+563. Lydia Reynolds-Royer, Medical Student, Windsor
+
+564. Barbara Bayliss RN
+
+565. Janet Dollin MDCM, FCFP
+
+566. Amanda Gardhouse, MD FRCPC Geriatrician 
+
+567. Sheela A Abraham PhD Assistant Professor, Queen's University
+
+568. Giuliana Guarna , MD
+
+569. Kathryn Cleverley, MD CCFP
+
+570. Rishi Sharma, MD MSc, PGY1 Internal Medicine - McMaster University
+
+571. Sujay Nagaraj, MD PhD Student, University of Toronto
+
+572. Sumana Naidu, MD Candidate, University of Toronto
+
+573. Simon Oczkowski MD MHSc MSC, McMaster University 
+
+574. Sameer Sharif MD FRCPC DRCPSC Emergency Medicine & Critical Care, Clinician Educator, McMaster University
+
+575. Victoria Lee-Kim, Medical student, Queen's University-Class of 2022
+
+576. Carly Eisbrenner, MD student, Michael G DeGroote School of Medicine
+
+577. Sarah Dowling, Assistant Professor, University of Toronto
+
+578. Barbara king MD 
+
+579. Sabrina Jancsi, Advocate
+
+580. Margaret Walton-Roberts, Wilfrid Laurier University 
+
+581. Andrew Youn, MD FRCPC, Scarborough Health Network
+
+582. Nadine Abdullah MD, MEd, FRCPC Associate Professor of Medicine, University of Toronto
+
+583. Deanne Croft (private citizen) Not affilated with any medical organizations
+
+584. Anne MacGregor-O'Neill, resident of Ontario
+
+585. Susan Edwards, MD, CCFP
+
+586. Judith Peranson MD MPH CCFP FCFP, Family Physician, University of Toronto
+
+587. Evan Collins, MD FRCPC Department of Psychiatry, University of Toronto
+
+588. Susan Jancsi Advocate
+
+589. Michael Douglas Scott, MD, FRCPC
+
+590. April Kinghorn, MD, MSc, Family Physician Kingston ON
+
+591. Moira Kapral, MD FRCPC, General Internist
+
+592. Celina Carter, RN, PhD(c), Dalla Lana School of Public Health
+
+593. Melody Ong, MD, FRCPC, Emergency Physician
+
+594. Sarah Freeman, MD, Obstetrics and Gynaecology Resident, U of T
+
+595. Lori Lopes RN 
+
+596. Jason Shew
+
+597. Kelly Pagerly Daughter of LTC resident	
+
+598. Pauline Timmons MD, CCFP, FCFP, Family Physician, Kitchener/Waterloo 
+
+599. Bikram Sidhu, MD MHPE FRCPC, Asst Professor, Dept of Medicine, Queen's University
+
+600. Prisanne Lagille
+
+601. Arielle Brickman, Medical Student, Queen’s University, Class of 2021
+
+602. Sherry A. Sweet Lakehead University Sociology Student 
+
+603. Lori Lopes RN Local 111 BUP ONA
+
+604. Adrianna Saldutto, BSW, RSW, MSW, Seniors Advocate
+
+605. Aaisham Ali, Medical Student, Schulich School of Medicine
+
+606. Paula Carcamo, Recreation Therapist
+
+607. Mandy Spencer BN MD CCFP (EM) 
+
+608. Vicki McKenna, RN, President Ontario Nurses' Association   
+
+609. Paula Carcamo, Recreation Therapist
+
+610. Charles Yin, PhD, MD Candidate, Western University
+
+611. Tim Hartley, MSc, Research Coordinator, St Joseph’s Health Care, London
+
+612. Brigitte Rieger
+
+613. Rebecca Fernandez, RN, BScN, MPH
+
+614. Kathryn Bennett
+
+615. Caron Gan, RN, MScN, Registered Psychotherapist
+
+616. Katherine Bishop-Williams, MSc, PhD, Public Health Epidemiologist and Sessional Lecturer 
+
+617. Judith Downey  EX ICU RN  , worked during SARS,,I have a Mother in a LTC Facility 
+
+618. Ken Diplock, PhD, CPHI(C)
+
+619. Aditi Kane, MD, CCFP
+
+620. Werner Rieger
+
+621. Dr. Lois McLaughlin MD CCFP FCFP Community Family Physician
+
+622. Rachel McInnis, OD, Western University
+
+623. Kaitlin McBride
+
+624. Andrew Sparrow, MD, CCFP, Family Physician and Assistant Professor, University of Toronto
+
+625. Maria saldutto
+
+626. Michael Braithwaite 
+
+627. Erin Bearss CCFP(EM) Sinai Health System, UofT DFCM
+
+628. Alice Cavanagh, MD student/PhD candidate, McMaster University
+
+629. Annie Cheung, MD, Resident Physician, McMaster Family Medicine
+
+630. Emilee Clarke, BSc, BEd
+
+631. Dr. A. Paul Titis MD CCFP FCFP
+
+632. Peggy Freeman 
+
+633. Imaan Kherani, Medical Student (Class of 2023), University of Toronto
+
+634. John Paul Brunetta
+
+635. Becky Dinwoodie, concerned Ontario resident
+
+636. Amtul Musawir MD, FRCPC.  
+
+637. Julie Carthew RN EC MN GNC(c) Geriatric Nurse Practitioner
+
+638. Megan Doherty, MD FRCPC
+
+639. Krystal Fox, Nurse Practitioner, St Michael’s Hospital
+
+640. Alina Brotea, MD, FRCPC
+
+641. Nancy McMurphy President Unifor Local 302
+
+642. Abeer Majeed MD CCFP, Primary care physician
+
+643. Sabrina Jeria
+
+644. Leslie Martin MD MHPE FRCPC McMaster University
+
+645. Dr. Andrea East MD Family Physician: Six Nations of The Grand River 
+
+646. Dr. Deb Zeni MD MDiv CCFP Faculty DFCM University of Toronto
+
+647. Jayne Armstrong UofT
+
+648. Jeffrey McCarthy MD CCFP(PC), McMaster University
+
+649. Michael Pray M.D. Hamilton Family Health Team
+
+650. Sal Buonocore, Concerned Citizen.
+
+651. Jessica Taylor, RM, Orillia Midwives
+
+652. Brenda Nur, HBSc, CDA, West Park Healthcare Centre
+
+653. Haider Saeed, MD, MSc, CCFP, FCFP, McMaster University
+
+654. Elizabeth Lee, MN, NP, CGN(C)
+
+655. Henry Chong, CPHI(C), BASc(EH), Senior Public Health Inspector (Retired), Past President-
+Canadian Institute of Public Health Inspectors (Ont.Br.)
+
+656. Margaret Hetherington RPh
+
+657. Talveer Mandur, MD, MSc, Psychiatry Resident University of Toronto
+
+658. Surkhab Peerzada, MPH, Global to Local Health Consulting Inc.
+
+659. Sandra Kelly,  M.Sc 
+
+660. Anne-Marie Mawhiney, professor emeritus,Laurentian University
+
+661. Meghan Bhatia, MD, CCFP
+
+662. Julie Maggi, Assistant Professor, Faculty of Medicine, University of Toronto
+
+663. Erica Di Ruggiero, PhD RD, Associate Professor, Dalla Lana School of Public Health, 
+University of Toronto
+
+664. Angela Chang, Medical Student, Western University
+
+665. Jessica Scott, MD Candidate, McMaster University
+
+666. Susan Kwolek. MHSC
+
+667. Pat Smith MD CCFP FCFP Hamilton, ON
+
+668. Nancy Freeman, Ph.D, C.Psych. Psychologist 
+
+669. Anisa Nazir, MBBS, MCh, MSc candidate (2022) IMS, Universty of Toronto
+
+670. Victoria Stinson, MSc, PhD cand.
+
+671. Caroline Variath, RN, PhD Candidate, University of Toronto
+
+672. Sandra Vukosich 
+
+673. Karri Venn LMC Manna Research
+
+674. Genevieve Eastabrook, MD, FRCSC
+
+675. David C. Marsh MD CCSAM, Northern Ontario School of Medicine
+
+676. Mark Bartlett, CPHI (C), Manager CD Control (Retired)
+
+677. Danielle Just, PhD Candidate, University of Toronto
+
+678. Penny MacCourt
+
+679. Matthew McGarr | Senior Medical Student | University of Toronto MD Program
+
+680. Elizabeth Mens, RN, MI
+
+681. Mary McGeown, PhD; Mum living in LTC
+
+682. Alison Ross, BSc, Medical Student, Queen's University 
+
+683. Lesia Briston MRT(R)
+
+684. Carol Ott MD FRCPC  Geriatrician
+
+685. Marlene Varga Pressure injury prevention advocate 
+
+686. Ahwon Jeong, Medical Student, Class of 2023, Western University
+
+687. Nadine Laraya, MD CCFP FCFP, St Joseph’s Health Centre, West Toronto OHT
+
+688. Prasaanthan Gopee-Ramanan, RTR, MD, FRCPC
+
+689. Tiffany Lam, MD CCFP(EM), University of Ottawa
+
+690. Jaime Lu, LTC worker
+
+691. Amy Freedman MD, CCFP(COE), FCFP
+
+692. Karen Bass, concerned Ontario citizen.
+
+693. Samar Ismail - concerned citizen
+
+694. David Harrison
+
+695. Douglas J. Quantz
+
+696. Victoria YY Xu, MD - Geriatric Medicine Resident (University of Toronto)
+
+697. Christine Hawkes, MD FRCPC
+
+698. Nancy Oliver Hawkrigg, Concerned Ontario Tax Payer
+
+699. Lianne Tile MD FRCPC Internal Medicine, University of Toronto
+
+700. Stephanie de Haan, RN, family caregiver 
+
+701. Patrick Hoang, MDCM, PhD, Resident Physician, Internal Medicine, University of Toronto 
+
+702. Justin To
+
+703. Dr. Pina Pejovic
+
+704. Martina Schubert, PharmD, RPh
+
+705. Jen Goldberg RM, MPH, PhD student in Public Health
+
+706. Olivia Ng, Advocate
+
+707. Jerry DeQuetteville
+
+708. Marcy Tovar 
+
+709. Jacob Kraicer MD,PhD, Resident Scholar, University of Toronto
+
+710. Michelle Bendeck, PhD Professor University of Toronto
+
+711. Janice E. McVeety RN BA MHA
+
+712. Renée Biss, Ph.D., C.Psych., Assistant Professor, Department of Psychology, University of 
+Windsor
+
+713. Joanna Dudek, PhD, University of Toronto
+
+714. Dr Zoran Pejovic PHD 
+
+715. Muhammad Munshi, MD, FRCPC, University of Toronto
+
+716. Stephanie Hosang, MD Candidate, University of Toronto
+
+717. Susan Jany, OD
+
+718. Rachel Lamont, MD, FRCPC
+
+719. Jesse May, BA, MD; Anesthesiology Resident, University of Toronto
+
+720. Dr Michael Kirlew MD CCFP-EM FCFP FRRMS
+
+721. Dr. Amanda Hird, University of Toronto
+
+722. Jennifer McAfee, concerned citizen, Innisfil, ON
+
+723. Chanel Kwok, MD FRCPC, Ottawa
+
+724. Julia Petta, MD Candidate 2022, Western University
+
+725. Sumeet Gill, MD CCFP Family Physician 
+
+726. Rachel HB Mitchell MD, MSc, FRCPC, Psychiatrist, Sunnybrook Health Sciences Centre, Assistant 
+Professor, University if Toronto
+
+727. Brent Derry, Ph.D., Senior Scientist, The Hospital for Sick Children
+
+728. Adam Vanderleest, Medical Student (2021), Western University
+
+729. Teresa wilson rpn
+
+730. Shannon Leung, MPH, MD student, University of Toronto
+
+731. Natalie Halff, BA, MA, concerned citizen of Ontario
+
+732. Jessica Garabon, Medical Student, Schulich School of Medicine & Dentistry, Western University
+
+733. Diane MacEachern, MScN, Nurse Practitioner, Professor Centennial College
+
+734. Ivana De Mezzo
+
+735. Amanda Canfield, MD, PGY4 Psychiatry, Department of Psychiatry & Behav Neurosciences, 
+McMaster University
+
+736. Eric Ready MD, CCFP, FCFP 
+
+737. David Whipp future senior
+
+738. Dr. Norris Lam, OD, MSc, FAAO
+
+739. Aras Marijosius 
+
+740. Jayne Armstrong UofT
+
+741. Marisa Cicero, MSW RSW 
+
+742. Rebecca Rajakaruna MD, Family Medicine Resident University of Toronto
+
+743. Alanna Jane, Medical Student, Queen's University
+
+744. Dhruvin Hirpara, MD. University of Toronto. 
+
+745. Richard H. Swartz, MD, PhD, FRCPC Associate Professor, Department of Medicine (Neurology), 
+Sunnybrook HSC, University of Toronto
+
+746. Andrea Chittle, MD, CCFP
+
+747. Roy Male, MDCM, FCFP Toronto 
+
+748. Shannon Boneschansker Lam, MPH, University of Toronto (DLSPH) 
+
+749. Trent Vokins, LTC PSW, BScN Student
+
+750. Seema Dosaj md, ccfp, fcfp ( Family Physician, courtesy staff Dept of Family Medicine UHN
+
+751. Freddy Lam
+
+752. Ross MacEachern BA CPHI(C) retired Health Protection Manager 
+
+753. Barbara Bayliss RN
+
+754. Natalie Wainwright, MD, Anesthesiology Resident, University of Toronto
+
+755. Randy Lyons
+
+756. Rae Brager, MD FRCPC, Assistant Professor, McMaster University
+
+757. Prativa Baral, PhD student, Johns Hopkins Bloomberg School of Public Health 
+
+758. Jane Thornton, MD, PhD, CCFP (SEM), Clinician Scientist, Schulich School of Medicine & 
+Dentistry, Western University 
+
+759. Christianna Facey-Crowther, RN BScN, Sinai Health System
+
+760. Sangita Kamblé, Ph.D., CAE, concerned citizen
+
+761. Laura Stratton, MSc, MD, CCFP, Family Physician
+
+762. James Sessford, PhD, Researcher 
+
+763. Larry Green. Fan of Dr Stamatopoulo’s advocacy and dismayed by the Ontario I live in.
+
+764. Minhal Arshad, a concerned citizen
+
+765. Malika Sharma, MD FRCPC MEd, Infectious Diseases
+
+766. Bryan Li, MD FRCPC
+
+767. Farah Ali, Canadian.
+
+768. Lisa Forman, LLB, MA, SJD
+
+769. Naomi Steenhof, RPh, UHN & University of Toronto
+
+770. Shajan Ahmed MD CCFP(EM), Emergency Physician, University of Toronto
+
+771. Thomas Foth, RN, PhD, Associate Professor, University of Ottawa
+
+772. Dr. Kaitlin Schwan, PhD Social Work, Senior Researcher, Canadian Observatory on Homelessness, 
+York University & Assistant Professor Status-Only, Faculty of Social Work, University of Toronto
+
+773. Sana Mian, concerned citizen 
+
+774. Dr. Kaitlin Schwan, PhD Social Work, Senior Researcher, Canadian Observatory on Homelessness, 
+York University & Assistant Professor Status-Only, Faculty of Social Work, University of Toronto
+
+775. Soojin Yi, MD, CCFP-EM, Emergency Physician, Toronto
+
+776. Andrea Somers CCFP (EM) UHN
+
+777. Sharon Gazeley MD CCFP FCFP, Family Physician
+
+778. Katharine Kellock MD FRCPC Pediatrics Sydney, NS
+
+779. Fiona Dunne MD FRCPC Internal Medicine and Palliative Medicine, Calgary, Alberta 
+
+780. Carmen Chan BMRSc MRT(T), Radiation Therapist, Sunnybrook Health Sciences
+
+781. Saima Akhtar MD FRCSC Assistant Professor Dept  of  Obstetrics &Gynecology University of Western Ontario 
+
+782. Reena Pattani, MDCM MPH FRCPC, University of Toronto
+
+783. Kate Ducak, MA, CPG, University of Guelph, Dementia Advocacy Canada
+
+784. Sharon Villani, Southlake Regional Health Centre
+
+785. Samadhi Mora Severino, MA,  PhD Student Health Policy Equity, York University
+
+786. Calandra Li, MD Candidate, University of Toronto
+
+787. Dr. Lisa Porter, Director WE-Spark Health Institute, Univ of Windsor 
+
+788. Shahzia Khan, MD CCFP, Family Physician, Medical Director Meadow Park LTC London ON 
+
+789. Anika Andal, RN, MScN (S), University of Toronto
 
 *For access to the official document and references, [click here:](https://docs.google.com/document/d/1IO8NP3Jj7dcWjqOikBbujY2Y2YYCVGr5CQDKntTMobc/edit?usp=sharing)
