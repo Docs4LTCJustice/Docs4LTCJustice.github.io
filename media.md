@@ -51,3 +51,6 @@ You can follow our work on Twitter at [@Docs4LTCJustice](https://twitter.com/Doc
 [CTV News- Article](https://toronto.ctvnews.ca/hundreds-of-doctors-advocates-ask-ontario-government-to-better-support-long-term-care-homes-battling-covid-19-1.5283093)
 
 [Global News](https://globalnews.ca/video/7601420/coronavirus-doctors-call-ford-governments-long-term-care-home-approach-reactionary-at-best)
+
+[Global News- Video Dr. Amit Arya](http://globalnews.ca/video/7604903/doctor-says-canadas-ltcs-are-in-a-humanitarian-crisis)
+
