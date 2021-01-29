@@ -1430,7 +1430,7 @@ University of Toronto
 
 678. Penny MacCourt
 
-679. Matthew McGarr | Senior Medical Student | University of Toronto MD Program
+679. Matthew McGarr, Senior Medical Student, University of Toronto MD Program
 
 680. Elizabeth Mens, RN, MI
 
@@ -2068,5 +2068,35 @@ York University & Assistant Professor Status-Only, Faculty of Social Work, Unive
 994. George Bilof, Family member
 
 995. Jack Raleigh MD, CCFP(EM), FCFP; Family physician, Sydenham, Ontario; emergency physician, Lennox and Addington County General Hospital, Napanee
+
+996. Steven Lewis, Adjunct Professor of Health Policy, Simon Fraser University
+
+997. Denyse Lynch, Patient Advisory Netrwork - Caregiver 
+
+998. Brenda Henry-Ganesh MD, FCFP family physician
+
+999. Waleed Ishaque, M.Eng, P.Eng, PMP, Project Manager
+
+1000. Lisa Boucher, PhD candidate, University of Ottawa
+
+1001. Abdullah Haroon, Medical Student, uOttawa
+
+1002. Haris Vaid, MD Internal Medicine Resident
+
+1003. Jayne Armstrong UofT
+
+1004. Dave Dean Retired School Principal
+
+1005. Sheila Lakhoo MD, CCFP, Assistant Professor Department of Family and Community Medicine, University of Toronto
+
+1006. Jennifer Penney, ScD. Retired. Former occupational and environmental health research director. 
+
+1007. Susan Woolhouse, MD, MClSc, CCFP
+
+1008. Anand Govindarajan, Toronto
+
+1009. Rachel Hummel MS3 University of Ottawa
+
+
 
 *For access to the official document and references, [click here:](https://docs.google.com/document/d/1IO8NP3Jj7dcWjqOikBbujY2Y2YYCVGr5CQDKntTMobc/edit?usp=sharing)
