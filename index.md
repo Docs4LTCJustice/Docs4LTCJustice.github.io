@@ -2097,6 +2097,146 @@ York University & Assistant Professor Status-Only, Faculty of Social Work, Unive
 
 1009. Rachel Hummel MS3 University of Ottawa
 
+1010. Colleen French, Retired Superintendent of Education
 
+1011. Abdul Rehman Qazi
+
+1012. Andrew Craig, PhD Associate Professor Queen’s University 
+
+1013. Janna Lise Hurley Parent/Teacher 
+
+1014. Roely DeVries, Daughter
+
+1015. Catherine Priddle DVM
+
+1016. Agnes Orban, HWDSB
+
+1017. Prashanthi Baskaran, MD FRCPC, Internal Medicine Resident
+
+1018. Kristy Sisson, MRT (R)
+
+1019. Anita Venugopal HBSc, BScPT, Registered Physiotherapist 
+
+1020. Arlene Danyleyko, Librarian and caregiver, Thunder Bay, ON
+
+1021. Tiana Downs MSc, University of Western Ontario M1
+
+1022. Hugh Traquair, MD FRCPC
+
+1023. Stephanie Bergman
+
+1024. Francine St Pierre
+
+1025. Taylor Townsend RN
+
+1026. Danielle Leahy Laughlin PhD 
+
+1027. Gita Maharaj
+
+1028. Kelly Diiorio, concerned citizen
+
+1029. Samantha Alves- Soical Service Worker- Gerontology 
+
+1030. Natalia Diaz-Granados, MSc 
+
+1031. Patrick Darragh, MD, FRCPC, MSc
+
+1032. Orli Nadel, MD, CCFP
+
+1033. Jennifer Rhind
+
+1034. Paul Agueci, BSW, MSW
+
+1035. Barry Fowlie, Director, Workers United Canada Council
+
+1036. Fran Sugawara retired nurse
+
+1037. Kelly O’Dwyer-Manuel, community supporter
+
+1038. Jolieann Joseph HBSc DDS
+
+1039. Dale Guenter MD, CCFP
+
+1040. Suzanne Wrighte 
+
+1041. Rachel Hummel MS3 University of Ottawa
+
+1042. Linda Egan, retired, Toronto 
+
+1043. Shelley Birenbaum, Shelley R. Birenbaum Professional Corporation (Health Law Counsel) JD MBE MSW
+
+1044. Karen Demers, M.A.Sc., retired psychological consultant
+
+1045. Kara Dymond, MT, PhD, Sessional Lecturer, OISE/University of Toronto 
+
+1046. Orli Nadel, MD, CCFP
+
+1047. Dr. Mary Lou Kelley, Professor Emerita, Lakehead University
+
+1048. Neli Trevisan, Member of the Public
+
+1049. Colin Sue-Chue-Lam, MD
+
+1050. Toba Bryant, PhD Assoc. Professor, Faculty of Health Sciences, Ontario Tech University
+
+1051. Dr. Kevin Miller, MD, CCFP(PC), Northern Ontario School of Medicine, 
+
+1052. Lynn Dee Eason,  retired college professor
+
+1053. Martha McBurnie  Action Not Words, Board Member
+
+1054. Dennis Raphael, PhD. York University
+
+1055. Deborah Thompson, Action Not Words advocacy group
+
+1056. Jeff Cavanagh
+
+1057. Richard Irving,PhD,  Emeritus Professor, Schulich School of Business, York University
+
+1058. Peter Leventis, MSc, PhD
+
+1059. Robert Maunder MD, FRCPC Psychiatrist
+
+1060. Anna C. Reed, MSW, PhD Student, IHPME, University of Toronto
+
+1061. Jada Fitzpatrick, MD, Emergency Medicine Resident, McMaster University
+
+1062. Michael Clarke, PhD, Professor, Public Health, Western University
+
+1063. Lorraine Nelson RN, BN, MA.Ed., D.E.T.
+
+1064. Mary Boulos, MSc, MD Student, McMaster University
+
+1065. Rosalin Margaret Siskos, fellow concerned citzen, with R.M.T.Wellness Director 30 + yrs.in LongTermCarm Pre-postSCARS,/ HandReflexolgy Programs for Residents&Staff in LongTermCare
+
+1066. Tony Souza - Community Activist Torento
+
+1067. John Greyson, Associate Professor, York U
+
+1068. Judy Tsao, MSW 
+
+1069. Pat Bird
+
+1070. Michael Quon MD, FRCPC, General Internal Medicine, Queensway-Carleton Hospital and The Ottawa Hospital
+
+1071. Bernice Morrison 
+
+1072. Cheryl Gaster
+
+1073. Dr. Nick Mulder, a concerned citizen 
+
+1074. Erin mayhew
+
+1075. Rhonda Teitel-Payne, MSW
+
+1076. Anushi Patgunarajah, MD
+
+1077. John Foster
+
+1078. Anthony J Souza MSW retired
+
+1079. Dr. Andrea Iaboni, Geriatric Psychiatrist and Scientist, Toronto Rehab Institute, University Health Network and University of Toronto
+
+1080. Natalie Mehra, executive director, Ontario Health Coalition 
 
 *For access to the official document and references, [click here:](https://docs.google.com/document/d/1IO8NP3Jj7dcWjqOikBbujY2Y2YYCVGr5CQDKntTMobc/edit?usp=sharing)
