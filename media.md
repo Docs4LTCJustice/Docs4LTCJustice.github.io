@@ -54,3 +54,6 @@ You can follow our work on Twitter at [@Docs4LTCJustice](https://twitter.com/Doc
 
 [Global News- Video Dr. Amit Arya](http://globalnews.ca/video/7604903/doctor-says-canadas-ltcs-are-in-a-humanitarian-crisis)
 
+[CityTv News](https://twitter.com/tinayazdani/status/1354950302114447366?s=21)
+
+[CTV News- Dr.Kwan & Dr.Dosani](https://www.youtube.com/watch?v=9PaJYt5QCBg&feature=youtu.be&ab_channel=JKwanMD)
