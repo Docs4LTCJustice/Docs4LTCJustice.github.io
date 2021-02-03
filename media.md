@@ -13,7 +13,7 @@ Our open letter was released on January 26, 2021. It was a public letter directe
 You can follow our work on Twitter at [@Docs4LTCJustice](https://twitter.com/Docs4LTCJustice).
 
 
-### Doctors for LTC Justice inaugural event: [Sign up here](https://www.eventbrite.ca/e/doctors-for-ltc-justice-panel-event-tickets-138020321497)
+### Doctors for LTC Justice inaugural event: [VIDEO HERE!](https://youtu.be/mU9XNYZSUYQ)
 
 
 ### Doctors for LTC Justice in the media:
